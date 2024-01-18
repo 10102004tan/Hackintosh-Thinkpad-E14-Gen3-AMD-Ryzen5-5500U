@@ -1,0 +1,1 @@
+# Hackintosh-Thinkpad-E14-Gen3-AMD-Ryzen5-5500U
